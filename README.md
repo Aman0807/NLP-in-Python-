@@ -7,6 +7,7 @@ Silicon Valley (TV Show on HBO) language analysis
 
 
 
+![maxresdefault](https://user-images.githubusercontent.com/38885615/59021873-52e28a80-886a-11e9-97c9-d227dde91d89.jpg)
 
 
 
